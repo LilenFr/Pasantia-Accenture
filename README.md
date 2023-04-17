@@ -1,4 +1,4 @@
-# Mi Pasantía en Accenture 🎇
+# Mi Pasantía en Accenture ✨
 
 ## Comprensión del proyecto 🔍
 
