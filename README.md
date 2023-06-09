@@ -1,5 +1,7 @@
 # Mi Pasantía en Accenture ✨
 
+◼️◻️◼️◻️◼️◻️
+
 ## Comprensión del proyecto 🔍
 
 Es necesario comprender el problema comercial que se está abordando, los requisitos del proyecto y la alineación del equipo.
